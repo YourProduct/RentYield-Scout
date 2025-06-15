@@ -1,0 +1,1 @@
+# RentYield-Scout
